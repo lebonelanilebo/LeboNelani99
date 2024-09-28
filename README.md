@@ -1,1 +1,1 @@
-# LeboNelani99
+I am a Lebo Nelani, a Rhodes University industrial psychology graduate and i am trying to change careers. i have not the slightest background in this but i am willing to learn so lets see how this goes. quite excited. # LeboNelani99
